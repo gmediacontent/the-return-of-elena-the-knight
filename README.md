@@ -1,1 +1,2 @@
-# the-return-of-elena-the-knight
+# The Return of Elena the Knight
+Elena, qui a passé toute sa vie en tant que chevalière de sang-froid pour venger sa famille, a fini par mourir sans réussir à atteindre son objectif. Quand elle a ouvert les yeux, elle a découvert qu’elle était retournée dans le passé. Ainsi, le jour, elle est une femme habillée d’une robe, et, la nuit, elle porte une épée pour changer l’histoire et empêcher la destruction de sa famille.  » Je veux vous épouser, Votre Altesse « , dit-elle au prince héritier. Elle ferait vraiment tout pour sauver sa famille.
